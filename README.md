@@ -1,2 +1,5 @@
-# Technology
-nothing is imposible through God.
+# About us 
+Name: Lily Jane R. Grafia
+Business Minded,Developer,Builder,Artist Manager
+
+
